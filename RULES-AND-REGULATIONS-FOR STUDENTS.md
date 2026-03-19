@@ -1,16 +1,14 @@
 *Rules and Regulations for KSTVET Trainees*
 
-![image](/static/images/pdf_1773855068_img_1.png)
+![image](/static/images/pdf_1773171556_img_1.png)
 
- # RULES & REGULATIONS FOR TRAINEES GENERAL
-### a) These rules and regulations are applicable to all trainees in the KSTVET Campus whether on
+## RULES & REGULATIONS FOR TRAINEES GENERAL a) These rules and regulations are applicable to all trainees in the KSTVET Campus whether on
 
-## regular programme, school-based programme or on short courses. 
-### b) REASON FOR HAVING THE RULES AND REGULATIONS:
+## regular programme, school-based programme or on short courses. b) REASON FOR HAVING THE RULES AND REGULATIONS:
 
 In any community that is living together and sharing common facilities and
 
-![image](/static/images/pdf_1773855068_img_2.png)
+![image](/static/images/pdf_1773171556_img_2.png)
 
 aspirations, it is necessary for the benefit of all, to establish a code of conduct and ethics that will enable its individuals to enjoy their rights and privileges. II. KSTVET is a community consisting of adult trainees and leaders who will be
 
@@ -44,7 +42,7 @@ Any form of bullying such as physical, social, verbal, racial, religious, sexual
 
 and cyberbullying are prohibited within the college. g) ACCOMMODATION IN THE COLLEGE HOSTELS
 
-![image](/static/images/pdf_1773855068_img_3.png)
+![image](/static/images/pdf_1773171556_img_3.png)
 
 i. Accommodation to trainees in the college hostels is allocated by the administration upon the trainee meeting all accommodation requirements which include payment of accommodation fees as set and revised by the college. ii. It is the responsibility of the trainee to take care of the room and the facilities therein. iii. Any misuse of the accommodation facility which includes allowing unauthorized persons into the room will draw disciplinary measures that may result in suspension and subsequent expulsion from the hostel. iv. Lost or damaged keys/locks shall be replaced at the allottee's expense. v. Visiting opposite gender rooms is restricted. vi. Trainees will be expected to bring and wash their own linen. Any time such linen is provided, it will be washed at the end of the term by the housekeeping staff. vii. During quiet time, each trainee should stay in his or her room. He/she must not disturb those studying or sleeping. At all times, trainees are required to avoid unnecessary noise and be considerate to those who are studying and also to other residents. h) TIME SCHEDULE FOR THE WEEK
 
@@ -56,7 +54,7 @@ Attendance of all official assemblies and meetings is compulsory 3. **LIBRARY**
 
 Library rules and regulations will be made available and may be amended from time to time. 4. **DRESSING**
 
-![image](/static/images/pdf_1773855068_img_4.png)
+![image](/static/images/pdf_1773171556_img_4.png)
 
 a. The wearing of caps, hats, berets, hoods and sporting of dreadlocks is not allowed in
 
@@ -97,13 +95,13 @@ iii.
 Rules and regulations governing the use of our medical facility will be
  notified as appendix to these rules and regulations.
 
-![image](/static/images/pdf_1773855068_img_6.png)
+![image](/static/images/pdf_1773171556_img_6.png)
 
 10. **CHANNEL OF COMMUNICATION**
 
 Correspondence with other institutions or corporations from the trainees' council
 
-![image](/static/images/pdf_1773855068_img_5.png)
+![image](/static/images/pdf_1773171556_img_5.png)
 
 or clubs MUST be submitted through the Dean of Students ii. College headed paper should NOT be used for private correspondences.
 
@@ -133,9 +131,9 @@ measures available in the college.
 
 Throughout the duration of your stay in the college, you will be expected to take your studies seriously and maintain a good academic performance. ii. Breaking of college rules and regulations and other misbehavior, may lead to a
 
-![image](/static/images/pdf_1773855068_img_7.png)
+![image](/static/images/pdf_1773171556_img_7.png)
 
-![image](/static/images/pdf_1773855068_img_8.png)
+![image](/static/images/pdf_1773171556_img_8.png)
 
 verbal or written warning. In cases where a student repeatedly breaks the rules and regulations, the Principal/Secretary Governing Council has the authority to suspend such a trainee from college with immediate effect. The Ministry of Education has authority to expel a student from college. 14. **REPORTS**
 

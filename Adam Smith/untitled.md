@@ -1,0 +1,3 @@
+# Welcome to Lectura
+
+Start typiniig your notes here...

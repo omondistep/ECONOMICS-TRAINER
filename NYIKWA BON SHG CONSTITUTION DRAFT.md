@@ -1,9 +1,10 @@
-# CONSTITUTION OF NYIKWA BON SHG @My COPY
+# CONSTITUTION OF NYIKWA BON SHG
+
 ***(A Self-Help Group of the Grandchildren of the Late Boniface Alal)***
 
-![image](/static/images/pdf_1773312462_img_1.png)
+![image](/static/images/pdf_1773854552_img_1.png)
 
-added memem
+
 ---
 
 
