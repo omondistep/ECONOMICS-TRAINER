@@ -1,4 +1,4 @@
-# Title: The Revolt of the Angels
+# The Revolt of the Angels
 
 ## Author: Anatole France
 
